@@ -1,1 +1,1 @@
-# Designs
+# Festus here, I'm a graphic designer, Researc assistant. I love designing, reseaching, reading, listening to music( Country music, Raggae, Hip Hop/ R & B etc. more) I love design script,research script.
